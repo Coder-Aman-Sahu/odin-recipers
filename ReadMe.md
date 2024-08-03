@@ -1,1 +1,1 @@
-Learn How to make Tea!! 😋😋!!![alt text](image-2.gif)
+Learn How to make Tea!! 😋😋!!!
